@@ -126,7 +126,7 @@ We welcome contributions to both projects! If you'd like to help improve the app
 For any inquiries, please contact us through:
 
 - **Email**: studio.anjana00@gmail.com
-- **Phone**: +1 (234) 567-8901
+- **Phone**: +94 70 397 3559
 - **WhatsApp**: [Click here to chat](https://wa.me/+94703973559)
 - **Instagram**: [@kasun_anjana_gunathilaka](https://instagram.com/kasun_anjana_gunathilaka)
 
